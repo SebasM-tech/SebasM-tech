@@ -17,7 +17,7 @@
 - 💬 I have loved programming since I was 10 years old.
 - 😄 Pronouns: He/Him
 - 👯 I am a person who likes to work in a team, I can work in a group and individually
-- ⚡ Fun fact: Hablo 2 idiomas: español e ingles <br> <br>
+- ⚡ Fun fact: Hablo 2 idiomas: español e ingles. <br> <br>
 
 ## 🔧 My Skills include
 
